@@ -2,7 +2,7 @@
 
 ➡️ **_MY NAME IS DIEGO_**
 
-➡️ **_IM 16 years old_**
+➡️ **_IM 17 years old_**
 
 ➡️ **_I LIVE ON BRASIL_**
 
@@ -17,7 +17,7 @@
 
 ----------------------------
 
-![](https://media1.tenor.com/m/KqGmy61ksqoAAAAC/hollow-knight.gif)
+![](https://media1.tenor.com/m/t8JWqJHf2NoAAAAC/klee-genshin.gif)
 ---------------------------
 
 ⭐**ABOUT OF MY GRAPHIC**
@@ -32,4 +32,4 @@
 🔯**TRANKS FOR SEE MY PROFILE HAVE GOOD DAY**
 
 
-![](https://media1.tenor.com/m/KNiwd20_6r0AAAAC/hollow-knight-dance.gif)
+![](https://media1.tenor.com/m/0SLGaFbO8X4AAAAd/klee-genshin.gif)
